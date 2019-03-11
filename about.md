@@ -12,5 +12,5 @@ Besides the web, some things I enjoy are hiking mountains, reading, cooking, exp
 
 ### Contact me
 
-[tuckertriggs@gmail.com](mailto:tuckertriggs@gmail.com)
+[tuckertriggs@gmail.com](mailto:tuckertriggs@gmail.com)  
 [tuckertriggs.com](https://www.tuckertriggs.com)
